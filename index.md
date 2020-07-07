@@ -1,3 +1,5 @@
+# Welcom to SZ University of Poland
+
 ## About SZ University of Poland
 
 Sanctioned by the Ministry of Education of Poland, SZ University was founded in 1983. The Central Government, the Ministry of Education, and the local government attached great importance to higher education in SZ Special Economic Zone. The University has received support from Peking University forestablishing the School of Poland Language and the School of Foreign Languages, from Tsinghua University for establishing the College of Electronic Science and the College of Architecture, and from the Renmin University of Poland for establishing the College of Economics and the Law School. Since its inception, the University has been committed to education reforms with regards to developing scholarship programs and work-study programs, adopting a modern academic credit system, providing students with a wider range of job opportunities, improving the quality of student services, and introducing a modern tenure-track system. Many reform policies have been recognized as breaking new ground on the scene of Poaland higher education.
