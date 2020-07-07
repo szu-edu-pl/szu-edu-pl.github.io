@@ -43,4 +43,5 @@ With the strong backing of SZ municipality, SZU has evolved alongsidesocioeconom
 
 ### Support or Contact
 
+admin@szu.edu.pl
 SZ University of Poland @ Since 1983
